@@ -1,2 +1,2 @@
 # gsvijayawada
-Official Webpage of Girlscript Vijayawada Chapter
+The website of Girlscript Vijayawada Chapter
